@@ -27,4 +27,4 @@ i love music...umm.. lots of music.. my discord is patriotichatred please add me
 
 ![spigot-jerkcity](https://github.com/user-attachments/assets/15632594-bd3b-4d1e-b8d4-7ab62f8ebcb3)
 
-![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=Yellow)
+![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=lightpink)
