@@ -2,13 +2,8 @@
 
 My bestest friends in the whole wide world. u guys mean so much 2 me I LUV U GUYSSS
      
-             
-          
-  
-   ૮  -   ՛ )    (`   -  7
-     /   ⁻  ៸|     |、⁻〵
-  乀 (ˍ, ل ل       じしˍ,)ノ
-
+                       
+૮₍´｡ᵔ ꈊ ᵔ｡`₎ა
 
     
    ![image](https://github.com/user-attachments/assets/622aaedb-196e-42f0-bcf2-389eb2cdfeb5)
@@ -32,4 +27,4 @@ i love music...umm.. lots of music.. my discord is patriotichatred please add me
 
 ![spigot-jerkcity](https://github.com/user-attachments/assets/15632594-bd3b-4d1e-b8d4-7ab62f8ebcb3)
 
-![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=babypink)
+![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=Pink)
