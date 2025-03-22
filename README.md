@@ -1,4 +1,4 @@
- < @cheesewezz . @DutchCannibalLinde . @kottbullarcat 3
+ < [@cheesewezz](https://github.com/cheesewezz) . [@DutchCannibalLinde](https://github.com/DutchCannibalLinde) . [@kottbullarcat](https://github.com/kottbullarcat) 3
 
 My bestest friends in the whole wide world. u guys mean so much 2 me I LUV U GUYSSS
      
@@ -27,4 +27,4 @@ i say slurs i can reclain (mostly the f slur..) guelppss if u uncomfy tell me an
 
 ![spigot-jerkcity](https://github.com/user-attachments/assets/15632594-bd3b-4d1e-b8d4-7ab62f8ebcb3)
 
-![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=green)
+![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=ff69b4)
