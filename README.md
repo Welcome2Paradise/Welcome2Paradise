@@ -1,4 +1,4 @@
- < [cheesewezz] (https://github.com/cheesewezz) . [DutchCannibalLinde] (https://github.com/DutchCannibalLinde) . [kottbullarcat] (https://github.com/kottbullarcat) 3
+ < @cheesewezz . @DutchCannibalLinde . @kottbullarcat 3
 
 My bestest friends in the whole wide world. u guys mean so much 2 me I LUV U GUYSSS
      
