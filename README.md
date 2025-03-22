@@ -1,10 +1,13 @@
  < @cheesewezz . @DutchCannibalLinde . @kottbullarcat 3
 
 My bestest friends in the whole wide world. u guys mean so much 2 me I LUV U GUYSSS
-             へ   ♡   ╱|、
-     ૮  -   ՛ )      (`   -  7
-       /   ⁻  ៸|       |、⁻〵
-    乀 (ˍ, ل ل          じしˍ,)ノ
+     
+             
+          
+  
+   ૮  -   ՛ )    (`   -  7
+     /   ⁻  ៸|     |、⁻〵
+  乀 (ˍ, ل ل       じしˍ,)ノ
 
 
     
@@ -14,13 +17,6 @@ My bestest friends in the whole wide world. u guys mean so much 2 me I LUV U GUY
 hai guys! u can call me Toki, mmy, or spigot! i adore nicknames, they make me feel happy. i will prolly maek a straw soon (i say nervously with a gun pointed 2 my head since i said that 9 months ago)
 
 
-⠀⠀⠀⠀⣀⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⢠⣤⡀⣾⣿⣿⠀⣤⣤⡄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⢿⣿⡇⠘⠛⠁⢸⣿⣿⠃⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠈⣉⣤⣾⣿⣿⡆⠉⣴⣶⣶⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⣾⣿⣿⣿⣿⣿⣿⡀⠻⠟⠃⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠙⠛⠻⢿⣿⣿⣿⡇⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠈⠙⠋⠁⠀⠀⠀
 
 
 i love lots of things! mostly postal, hatred, jerkcity, JTHM, IFS, SQUEE! and metalapocypse right now! ignore how friggin UGLY this is umm dunno how 2 work this wesbtie.. geulp
@@ -36,4 +32,4 @@ i love music...umm.. lots of music.. my discord is patriotichatred please add me
 
 ![spigot-jerkcity](https://github.com/user-attachments/assets/15632594-bd3b-4d1e-b8d4-7ab62f8ebcb3)
 
-![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=pink)
+![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=babypink)
