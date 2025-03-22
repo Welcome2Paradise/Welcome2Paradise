@@ -27,4 +27,4 @@ i say slurs i can reclain (mostly the f slur..) guelppss if u uncomfy tell me an
 
 ![spigot-jerkcity](https://github.com/user-attachments/assets/15632594-bd3b-4d1e-b8d4-7ab62f8ebcb3)
 
-![hostages](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=green)
+![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=green)
