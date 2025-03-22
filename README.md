@@ -9,7 +9,7 @@ My bestest friends in the whole wide world. u guys mean so much 2 me I LUV U GUY
    ![image](https://github.com/user-attachments/assets/622aaedb-196e-42f0-bcf2-389eb2cdfeb5)
 
 
-hai guys! u can call me Toki, mmy, or spigot! i adore nicknames, they make me feel happy. i will prolly maek a straw soon (i say nervously with a gun pointed 2 my head since i said that 9 months ago)
+hai guys! u can call me Toki, Ty, Mmy, or Spigot! i adore nicknames, they make me feel happy. i will prolly maek a straw soon (i say nervously with a gun pointed 2 my head since i said that 9 months ago)
 
 
 
