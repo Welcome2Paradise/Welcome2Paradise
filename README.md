@@ -14,7 +14,7 @@ hai guys! u can call me Toki, mmy, or spigot! i adore nicknames, they make me fe
 
 
 
-i love lots of things! mostly postal, hatred, jerkcity, JTHM, IFS, SQUEE! and metalapocypse right now! ignore how friggin UGLY this is umm dunno how 2 work this wesbtie.. geulp
+i love lots of things! mostly postal, hatred, house of wax, jerkcity, JTHM, IFS, SQUEE! and metalapocypse right now! ignore how friggin UGLY this is umm dunno how 2 work this wesbtie.. geulp
 
 umm anywayys very very shy i will NOT talk first, but PLEASSEE interact with me, when you do i will defiently start talking more! i really luv making friends, im nice..i swear..
 
