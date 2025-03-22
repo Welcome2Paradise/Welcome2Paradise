@@ -22,7 +22,7 @@ hypersexual, dyslexic and mentally ill, i only state this 4 the people uncomfort
 
 i love music...umm.. lots of music.. my discord is patriotichatred please add me if youd like!! dont b afraid 2 cuddle with me i LOVE cuddling on poneytown! best 2 whisper, as i can be offtab a lot or even sleeping!
 
-
+i say slurs i can reclain (mostly the f slur..) guelppss if u uncomfy tell me and ill try 2 stop! if u have the same interests plspleapelpaslepalsple int im begging youh
 
 
 ![spigot-jerkcity](https://github.com/user-attachments/assets/15632594-bd3b-4d1e-b8d4-7ab62f8ebcb3)
