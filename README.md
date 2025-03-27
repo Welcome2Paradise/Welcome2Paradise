@@ -12,7 +12,7 @@ My bestest friends in the whole wide world. u guys mean so much 2 me I LUV U GUY
 hai guys! u can call me Toki, Ty, Mmy, or Spigot! i adore nicknames, they make me feel happy. i will prolly maek a straw soon (i say nervously with a gun pointed 2 my head since i said that 9 months ago)
 
 
-
+follow me [insta](https://www.instagram.com/notemdude/)
 
 i love lots of things! mostly postal, hatred, house of wax, jerkcity, JTHM, IFS, SQUEE! and metalapocypse right now! ignore how friggin UGLY this is umm dunno how 2 work this wesbtie.. geulp
 
