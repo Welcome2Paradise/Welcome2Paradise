@@ -30,4 +30,4 @@ i say slurs i can reclain (mostly the f slur..) guelppss if u uncomfy tell me an
 ![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=ff69b4)  < my hostages :-3
 
 
-cna people stop harrasing me 4 no reason liek i am literally 14 you guys are grown ass adults???
+
