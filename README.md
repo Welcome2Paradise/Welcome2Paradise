@@ -26,4 +26,4 @@ i have lots of interests, i swear am cool.... mostly postal, hatred, jerkcity, m
 
 ![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=ff69b4) < my hostages :-3
 
-strawpage is a wip.. CUT ME SOME SLACKK!!
+strawpage is a wip.. CUT ME SOME SLACKK!! and im aware how ugly this is i just needed somehwere 2 put my info okay bye fags :-3
