@@ -7,3 +7,6 @@ i like making friends ☹️
 
 
 my discord is jerkkcity 
+
+![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=ff69b4)
+i am a severely mentally ill, hypersexual, and challenged person. i am so sorry if i do something, please reach out and tell me if i do
