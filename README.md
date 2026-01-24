@@ -10,4 +10,4 @@ hihi postal, outlast, horror movie/game geeks, and metalocalyspe plspls int,, fi
 
 <h6 align="center">
 
-sensitive people dni u wont like me lolz
+chris redfield and franco barbi in tha real liyfe
