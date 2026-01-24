@@ -10,4 +10,4 @@ hihi postal, outlast, horror movie/game geeks, and metalocalyspe plspls int,, fi
 
 <h6 align="center">
 
-chris redfield and franco barbi in tha real liyfe
+chris redfield and franco barbi in tha real liyfe.. placeholder profile til im not lazy.
