@@ -11,3 +11,7 @@
 <h6 align="center">
 
 'I want out of this place. I want my fucking fingers back. I want to see Trager die.'
+
+
+
+<img src="https://image2url.com/r2/default/gifs/1773475532151-3580f6de-e328-47a3-85e3-b1efd7cf4a9e.gif" width="150" />
