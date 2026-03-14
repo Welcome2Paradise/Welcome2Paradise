@@ -18,6 +18,6 @@
 
 'I want out of this place. I want my fucking fingers back. I want to see Trager die.'
 
-![image alt](https://github.com/Welcome2Paradise/Welcome2Paradise/blob/db7dd9bd89936cb3f509772e05db8d4df41a3d00/milesfingys.gif) width="320" /<
+![image alt](https://github.com/Welcome2Paradise/Welcome2Paradise/blob/db7dd9bd89936cb3f509772e05db8d4df41a3d00/milesfingys.gif)
 
 
