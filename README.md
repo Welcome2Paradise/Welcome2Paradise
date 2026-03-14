@@ -14,5 +14,4 @@
 
 ![image alt](https://github.com/Welcome2Paradise/Welcome2Paradise/blob/db7dd9bd89936cb3f509772e05db8d4df41a3d00/milesfingys.gif)
 
-english is not my first langauge, as i may mispell/mispronounce certain things. Don't ever be afraid to come up to me or talk to me, as it makes my day<3
 
