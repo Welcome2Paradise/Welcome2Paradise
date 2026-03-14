@@ -14,4 +14,4 @@
 
 
 
-<img src="https://image2url.com/r2/default/gifs/1773475532151-3580f6de-e328-47a3-85e3-b1efd7cf4a9e.gif" width="150" />
+<img src="https://cdn.discordapp.com/attachments/1204456799848112181/1482291809903186022/milesfingys.gif " width="150" />
