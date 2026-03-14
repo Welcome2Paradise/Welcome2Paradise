@@ -3,7 +3,9 @@
 ![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=ff69b4)
 
 <h6 align="center">
-
+  
+𐂯  <a href="https://github.com/Maddsszz">my trager</a>  𐂯
+  
 <img src="https://file.garden/aWQNv4rA4UhVT0mX/Screenshot_2026-03-13_233208-removebg-preview.png" width="150" />
 
 <p align="center">
