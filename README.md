@@ -14,4 +14,4 @@
 
 
 
-<img src="https://pub-1407f82391df4ab1951418d04be76914.r2.dev/uploads/6bcd9b14-18de-48f0-b303-636704c13689.gif" width="150" />
+<img src="https://cdn.corenexis.com/view/5134626168" width="150" />
