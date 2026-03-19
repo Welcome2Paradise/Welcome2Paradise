@@ -19,3 +19,6 @@
 'I want out of this place. I want my fucking fingers back. I want to see Trager die.'
 
 <p align="center"> <img src="https://github.com/Welcome2Paradise/Welcome2Paradise/blob/db7dd9bd89936cb3f509772e05db8d4df41a3d00/milesfingys.gif" width="320" />
+
+
+hi just because i am friends with somebody doesnt mean i am aware or support their actions/interests. thank you dont be a dick
