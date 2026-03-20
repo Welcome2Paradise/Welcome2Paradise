@@ -4,7 +4,7 @@
 
 <h6 align="center">
   
-𐂯  <a href="https://github.com/Maddsszz">my trager</a>  𐂯
+𐂯  <a href="https://github.com/Bloodngutsz">my trager</a>  𐂯
   
 <img src="https://file.garden/aWQNv4rA4UhVT0mX/Screenshot_2026-03-13_233208-removebg-preview.png" width="150" />
 
