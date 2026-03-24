@@ -3,7 +3,8 @@
 ![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&color=ff69b4)
 
 <h6 align="center">
-  
+
+  <a href="https://github.com/BabieFranco">his dumb dog</a>
   
 <img src="https://file.garden/aWQNv4rA4UhVT0mX/Screenshot_2026-03-13_233208-removebg-preview.png" width="150" />
 
