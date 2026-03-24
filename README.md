@@ -6,7 +6,7 @@
 
   <a href="https://github.com/BabieFranco">his dumb dog</a>
   
-<img src="https://file.garden/aWQNv4rA4UhVT0mX/Screenshot_2026-03-13_233208-removebg-preview.png" width="150" />
+<img src="https://files.catbox.moe/lhcm9q.png" width="50" />
 
 <p align="center">
 
@@ -18,7 +18,7 @@
 
 'Your mistake. It's over, Wesker!'
 
-<p align="center"> <img src="https://files.catbox.moe/1rm0sq.png" width="320" />
+<img src="https://files.catbox.moe/eev023.png" width="236" />
 
 
 strawpage huuuuge wip oki...not finished
