@@ -16,9 +16,9 @@
 
 <h6 align="center">
 
-'I want out of this place. I want my fucking fingers back. I want to see Trager die.'
+'Your mistake. It's over, Wesker!'
 
-<p align="center"> <img src="https://github.com/Welcome2Paradise/Welcome2Paradise/blob/db7dd9bd89936cb3f509772e05db8d4df41a3d00/milesfingys.gif" width="320" />
+<p align="center"> <img src="https://files.catbox.moe/1rm0sq.png" width="320" />
 
 
 strawpage huuuuge wip oki...not finished
