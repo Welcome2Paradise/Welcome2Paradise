@@ -4,7 +4,7 @@
 
 <h6 align="center">
 
-  fixing soon.
+  fixing profile soon. im lazy
   
 <img src="https://files.catbox.moe/lhcm9q.png" width="50" />
 
