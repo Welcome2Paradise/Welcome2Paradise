@@ -4,7 +4,7 @@
 
 <h6 align="center">
 
-  <a href="https://github.com/BabieFranco">his dumb dog</a>
+  fixing soon.
   
 <img src="https://files.catbox.moe/lhcm9q.png" width="50" />
 
