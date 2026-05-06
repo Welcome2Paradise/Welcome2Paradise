@@ -4,7 +4,7 @@
 
 <h6 align="center">
 
-  fixing profile soon. im lazy
+ guys i know how to make cute profiles im just #lazy I SWEAR i'll make mi ren themed github soon..
 
 
 <p align="center">
