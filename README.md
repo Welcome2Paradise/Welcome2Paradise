@@ -17,4 +17,4 @@
 
 <a href="https://github.com/rookieleon">alt</a> 
 
-strawpage huuuuge wip oki...not finished
+don't like mi? block me! problem solved
