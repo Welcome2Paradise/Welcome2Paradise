@@ -1,5 +1,7 @@
 <h6 align="center">
 
+ᴵ ᵂᴬᴺᵀ ʸᵒᵘ ᵗᵒ ˡᵃˢᵗ ᵃ ˡᵒⁿᵍ ᵗᶦᵐᵉ .
+
 ![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&label=stalkers&color=959595)
 
 <h6 align="center">
@@ -17,4 +19,5 @@
 
 <a href="https://github.com/rookieleon">alt</a> 
 
+ᵃˢ ˡᵒⁿᵍ ᵃˢ ʸᵒᵘ'ʳᵉ ᵃˡᶦᵛᵉ . . . ʰᵉ'ˡˡ ˡᵉᵃᵛᵉ ᵐᵉ .
 
