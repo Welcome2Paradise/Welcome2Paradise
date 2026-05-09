@@ -1,6 +1,6 @@
 <h6 align="center">
 
-![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&label=stalkers&color=ff69b4)
+![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&label=stalkers&color=ffffff)
 
 <h6 align="center">
 
