@@ -4,7 +4,7 @@
 
 <h6 align="center">
 
- guys i know how to make cute profiles im just #lazy I SWEAR i'll make mi ren themed github soon..
+<img src="https://files.catbox.moe/t8cc2n.webp" width="100" />.
 
 
 <p align="center">
