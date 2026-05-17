@@ -1,5 +1,7 @@
 <h6 align="center">
 
+<kbd>ME AND <a href="https://github.com/COMPOUND-V24">ARCHIVE</a> = TOILETDUO
+
 ᴵ ᵂᴬᴺᵀ ʸᵒᵘ ᵗᵒ ˡᵃˢᵗ ᵃ ˡᵒⁿᵍ ᵗᶦᵐᵉ .
 
 ![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&label=stalkers&color=959595)
