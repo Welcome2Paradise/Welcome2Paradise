@@ -19,7 +19,7 @@
 
 <h6 align="center">
 
-<a href="https://github.com/rookieleon">alt1</a> , <a href="https://github.com/yanderechainsawregurgitationfactory">alt2</a>
+i have 500 different alts, try and collect them all
 
 ᵃˢ ˡᵒⁿᵍ ᵃˢ ʸᵒᵘ'ʳᵉ ᵃˡᶦᵛᵉ . . . ʰᵉ'ˡˡ ˡᵉᵃᵛᵉ ᵐᵉ .
 
